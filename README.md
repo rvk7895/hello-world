@@ -1,2 +1,1 @@
-# hello-world
-Just to start github
+hey ppl rvk this side just trying shit out
